@@ -1,5 +1,5 @@
 # real-estate-investment
-
+<h1>Real estate investment - Greek properties</h1>
 In recent years <b>Athens</b> has been attracting more and more investors from all over the world. According to the recent survey conducted by experts, <b>Greece ranks as one of the best investment destinations</b> and is considered one of the emerging and fast-growing <a href="https://dkg-development.com/projects.htm">real-estate markets</a> globally. The survey involved investors from all over the world: Americans, Chinese, Russians, and Arabs.Athens is among the three cities that foreign investors prefer to invest in, mainly in real estate in the historical center of the city, in the southern suburbs, and Piraeus.
 It is worth pointing out that the Athens Riviera is chosen as a multipurpose destination both by Greeks and foreigners. According to the analysts of the survey, the Chinese and the Russians were the first to have acquired <a href="https://dkg-development.com/projects.htm">real-estate properties</a>, aiming at achieving the “Golden Visa”, and decisively contributed to the rapid expansion of the market in 2017 – 2018 in the southern suburbs of Athens, resulting in the enormous increase in prices in Glyfada, Alimos, Palio Faliro, because of the overwhelming demand. This is how Athens managed to achieve a 4.7% growth in the new construction activity across the country.
 
